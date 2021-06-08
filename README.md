@@ -1,6 +1,4 @@
-Well, a part of me is here
-- I do not have an account on social networks, otherwise I will have nothing for you except a handful of nonsense ...
-- I try to design my blog :)
+Well, a part of me is here...
 
 
 "I now consider myself to be at the beginning of the beginning of making something serious"  -Vincent Van Gogh 
